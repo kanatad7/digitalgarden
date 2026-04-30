@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/PMQ元創方/","tags":["ハリウッド・ロード","クイーンズ・カレッジ"],"dg-note-properties":{"tags":["ハリウッド・ロード","クイーンズ・カレッジ"]}}
+{"dg-publish":true,"permalink":"/PMQ元創方/","dg-note-properties":{"tags":null}}
 ---
 
 
