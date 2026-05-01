@@ -15,5 +15,8 @@
 ・[[大館-Tai Kwun\|大館-Tai Kwun]]
 ・[[大埔芸術中心\|大埔芸術中心]]
 
+行ったイベント
+・[[Tai Kwun Conversations \| Supplying the Globe: Stories of Urban Transformation]]at[[大館-Tai Kwun\|大館-Tai Kwun]]
+
 
 
