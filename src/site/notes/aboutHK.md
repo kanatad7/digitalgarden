@@ -10,13 +10,17 @@
 
 
 ## 行った場所（デザイン・アート・コミュニティ関連）
-・[[PMQ元創方\|PMQ元創方]]
-・[[九龍城塞\|九龍城塞]]
-・[[大館-Tai Kwun\|大館-Tai Kwun]]
-・[[大埔芸術中心\|大埔芸術中心]]
+- [[PMQ元創方\|PMQ元創方]]
+- [[九龍城塞\|九龍城塞]]
+- [[大館-Tai Kwun\|大館-Tai Kwun]]
+- [[大埔芸術中心\|大埔芸術中心]]
+- [[Dim Sum Lab\|Dim Sum Lab]]
 
-行ったイベント
-・[[Supplying the Globe - Stories of Urban Transformation\|Supplying the Globe - Stories of Urban Transformation]]at[[大館-Tai Kwun\|大館-Tai Kwun]]
+## 行ったイベント
+- 5/1 - [[Supplying the Globe - Stories of Urban Transformation\|Supplying the Globe - Stories of Urban Transformation]] at [[大館-Tai Kwun\|大館-Tai Kwun]]
+  都市変容についてアーティストや建築家３人が討論する会
+- 5/2 - [[Dark Side of Hong Kong - Kowloon Caged Homes Walking Tour\|Dark Side of Hong Kong - Kowloon Caged Homes Walking Tour]]
+- 5/2 -[[Supplying the Globe -Migrant and Diaspora Traces\|Supplying the Globe -Migrant and Diaspora Traces]] 
 
 
 
