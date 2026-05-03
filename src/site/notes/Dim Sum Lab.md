@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/Dim Sum Lab/","dg-note-properties":{}}
+{"dg-publish":true,"permalink":"/Dim Sum Lab/","tags":["place"],"dg-note-properties":{"tags":["place"]}}
 ---
 
 香港の[[Keyward/メイカースペース\|メイカースペース]]
