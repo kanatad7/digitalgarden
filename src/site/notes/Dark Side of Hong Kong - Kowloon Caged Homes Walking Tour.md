@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/Dark Side of Hong Kong - Kowloon Caged Homes Walking Tour/","dg-note-properties":{}}
+{"dg-publish":true,"permalink":"/Dark Side of Hong Kong - Kowloon Caged Homes Walking Tour/","dg-note-properties":{"tags":null}}
 ---
 
 香港の闇の部分に焦点をあてたウォーキングツアー。英語だったがガイドさんが普通語話せたので助かる
