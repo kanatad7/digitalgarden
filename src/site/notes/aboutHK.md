@@ -17,6 +17,8 @@
 - [[大館-Tai Kwun\|大館-Tai Kwun]]
 - [[大埔芸術中心\|大埔芸術中心]]
 - [[Dim Sum Lab\|Dim Sum Lab]]
+- [[兆禧苑商場\|兆禧苑商場]]
+- [[Para Site 藝術中心\|Para Site 藝術中心]]
 
 ## 行ったイベント・展示会
 - 4/22 -[[Neon Preservation in Hong Kong\|Neon Preservation in Hong Kong]] at [[DX Design Hub\|DX Design Hub]]
@@ -25,6 +27,7 @@
 - 5/2 - [[Dark Side of Hong Kong - Kowloon Caged Homes Walking Tour\|Dark Side of Hong Kong - Kowloon Caged Homes Walking Tour]]
 　　　　香港の住環境や負の面について学ぶウォーキングツアー
 - 5/2 -[[Supplying the Globe -Migrant and Diaspora Traces\|Supplying the Globe -Migrant and Diaspora Traces]] at [[大館-Tai Kwun\|大館-Tai Kwun]]
+- 5/6 - [[Site-seeing-易過借房\|Site-seeing-易過借房]] at [[Para Site 藝術中心\|Para Site 藝術中心]]
 
 
 
