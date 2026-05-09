@@ -28,6 +28,7 @@
 　　　　香港の住環境や負の面について学ぶウォーキングツアー
 - 5/2 -[[Supplying the Globe -Migrant and Diaspora Traces\|Supplying the Globe -Migrant and Diaspora Traces]] at [[大館-Tai Kwun\|大館-Tai Kwun]]
 - 5/6 - [[Site-seeing-易過借房\|Site-seeing-易過借房]] at [[Para Site 藝術中心\|Para Site 藝術中心]]
+- 5/9 - [[People Drawing People\|People Drawing People]] at Muse Garden
 
 
 

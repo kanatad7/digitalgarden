@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/PMQ元創方/","tags":["place"],"dg-note-properties":{"tags":["place"]}}
+{"dg-publish":true,"permalink":"/PMQ元創方/","tags":["place","gallery"],"dg-note-properties":{"tags":["place","gallery"]}}
 ---
 
 もともと２つの建物を中央でつなげている。

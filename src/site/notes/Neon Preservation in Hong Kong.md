@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/Neon Preservation in Hong Kong/","dg-note-properties":{}}
+{"dg-publish":true,"permalink":"/Neon Preservation in Hong Kong/","tags":["event"],"dg-note-properties":{"tags":["event"]}}
 ---
 
 [[DX Design Hub\|DX Design Hub]]
