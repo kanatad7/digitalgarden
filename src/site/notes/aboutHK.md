@@ -19,6 +19,7 @@
 - [[Dim Sum Lab\|Dim Sum Lab]]
 - [[兆禧苑商場\|兆禧苑商場]]
 - [[Para Site 藝術中心\|Para Site 藝術中心]]
+- [[香港藝術館\|香港藝術館]]
 
 ## 行ったイベント・展示会
 - 4/22 -[[Neon Preservation in Hong Kong\|Neon Preservation in Hong Kong]] at [[DX Design Hub\|DX Design Hub]]
@@ -29,6 +30,7 @@
 - 5/2 -[[Supplying the Globe -Migrant and Diaspora Traces\|Supplying the Globe -Migrant and Diaspora Traces]] at [[大館-Tai Kwun\|大館-Tai Kwun]]
 - 5/6 - [[Site-seeing-易過借房\|Site-seeing-易過借房]] at [[Para Site 藝術中心\|Para Site 藝術中心]]
 - 5/9 - [[People Drawing People\|People Drawing People]] at Muse Garden
+- 5/12-[[園美生活-中外園林藝術\|園美生活-中外園林藝術]]
 
 
 
