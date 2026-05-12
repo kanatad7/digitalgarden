@@ -31,7 +31,7 @@
 - 5/6 - [[Site-seeing-易過借房\|Site-seeing-易過借房]] at [[Para Site 藝術中心\|Para Site 藝術中心]]
 - 5/9 - [[People Drawing People\|People Drawing People]] at Muse Garden
 - 5/12-[[園美生活-中外園林藝術\|園美生活-中外園林藝術]]
-- 5/13-[[Placemaking and Participatory Planning in Singapore\|Placemaking and Participatory Planning in Singapore]]
+- 5/13-[[Placemaking and Participatory Planning in Singapore\|Placemaking and Participatory Planning in Singapore]] at 香港大学 Social Science
 
 
 
