@@ -41,6 +41,7 @@ the peolpe gallery / art walk liite india / lively places
 住民の反応：環境は以前よりもよくなった、i hang out in the void decks more than before
 　　　　　　ゴッホなどの画家ではなくその辺の猫や花などを書き始めたがその親しみやすさが重要
 　　　　　　住民がを絵を描いたりすることで友達ができたり
+　　　　　　
 ![S__31842321_0.jpg\|454](/img/user/%E7%94%BB%E5%83%8F/S__31842321_0.jpg)
 
 #### (b)Pohibitions on tactical placemaking

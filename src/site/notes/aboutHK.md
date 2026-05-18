@@ -20,6 +20,7 @@
 - [[兆禧苑商場\|兆禧苑商場]]
 - [[Para Site 藝術中心\|Para Site 藝術中心]]
 - [[香港藝術館\|香港藝術館]]
+- [[LUK HUENG COMMONS\|LUK HUENG COMMONS]]　（これから行く予定）
 
 ## 行ったイベント・展示会
 - 4/22 -[[Neon Preservation in Hong Kong\|Neon Preservation in Hong Kong]] at [[DX Design Hub\|DX Design Hub]]
@@ -32,6 +33,10 @@
 - 5/9 - [[People Drawing People\|People Drawing People]] at Muse Garden
 - 5/12-[[園美生活-中外園林藝術\|園美生活-中外園林藝術]]
 - 5/13-[[Placemaking and Participatory Planning in Singapore\|Placemaking and Participatory Planning in Singapore]] at 香港大学 Social Science
+- 5/15-[[香港から北海道・東川町へ —— 丹丘蒸留所の挑戦\|香港から北海道・東川町へ —— 丹丘蒸留所の挑戦]]
+- 5/17-[[Affordable Art Fair Hong Kong\|Affordable Art Fair Hong Kong]]
+- 
+- 
 
 
 
