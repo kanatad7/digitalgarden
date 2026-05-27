@@ -7,6 +7,8 @@
 - [[Keyward/公共空間\|公共空間]]
 - [[Public Open Space in Private Developments Design and Management Guidelines日本語訳\|Public Open Space in Private Developments Design and Management Guidelines日本語訳]]
 - [[粵港澳大灣\|粵港澳大灣]]
+- [[香港のモジュール建築\|香港のモジュール建築]]
+- 
 
 
 ## 行った場所（デザイン・アート・コミュニティ関連）
@@ -35,8 +37,8 @@
 - 5/13-[[Placemaking and Participatory Planning in Singapore\|Placemaking and Participatory Planning in Singapore]] at 香港大学 Social Science
 - 5/15-[[香港から北海道・東川町へ —— 丹丘蒸留所の挑戦\|香港から北海道・東川町へ —— 丹丘蒸留所の挑戦]]
 - 5/17-[[Affordable Art Fair Hong Kong\|Affordable Art Fair Hong Kong]]
-- 
-- 
+- 5/24- [[深圳文博會\|深圳文博會]]
+- - 
 
 
 
