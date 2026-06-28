@@ -23,6 +23,10 @@
 - [[Para Site 藝術中心\|Para Site 藝術中心]]
 - [[香港藝術館\|香港藝術館]]
 - [[LUK HUENG COMMONS\|LUK HUENG COMMONS]]　（これから行く予定）
+- [[Inno100\|Inno100]]
+- [[MakerBay Tsuen Wan\|MakerBay Tsuen Wan]]
+- [[土家故事館\|土家故事館]]
+- 
 
 ## 行ったイベント・展示会
 - 4/22 -[[Neon Preservation in Hong Kong\|Neon Preservation in Hong Kong]] at [[DX Design Hub\|DX Design Hub]]
@@ -38,7 +42,11 @@
 - 5/15-[[香港から北海道・東川町へ —— 丹丘蒸留所の挑戦\|香港から北海道・東川町へ —— 丹丘蒸留所の挑戦]]
 - 5/17-[[Affordable Art Fair Hong Kong\|Affordable Art Fair Hong Kong]]
 - 5/24- [[深圳文博會\|深圳文博會]]
-- - 
+- 5/29 - [[Creative morning in HK\|Creative morning in HK]]
+- 6/7  - [[香港歴史博物館\|香港歴史博物館]]
+- 6/21 - [[茶記百科\|茶記百科]] at [[Gate33\|Gate33]]
+- 6/27 - [[拍住上—光影裡並肩馳騁的我們\|拍住上—光影裡並肩馳騁的我們]] at [[大館-Tai Kwun\|大館-Tai Kwun]]
+ 
 
 
 
